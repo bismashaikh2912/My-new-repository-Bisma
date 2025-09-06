@@ -1,1 +1,1 @@
-Hi my name is Bisma Shaikh..
+Hi my name is Bisma Shaikh. 
